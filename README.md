@@ -1,1 +1,0 @@
-# C-Users-rishith-.IdeaIC2016.2-forpractice
